@@ -1,1 +1,1 @@
-# Dolgozat
+# Győri Tamás
